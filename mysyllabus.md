@@ -1,11 +1,13 @@
 
-# The Best Ways to Disapear
+# How to Disappear
 
 by **Nobody**
 
 ## Step 1
 
 *Preparation*
+
+First, understand why you want to disappear. Having a clear understanding of your motivations will help you in your journey after disappearing. Take stock of your resources, especially those that will aid in the disappearance as well as your life afterwards.
 
 Get rid of all any unecessary attachments. This applies to personal items of affection, relationships, and customs. Being disapeared is a jarring experience and feelings of attatchment will make the experience far more difficult. So, burn bridges and your belongings (if you so choose).
 
